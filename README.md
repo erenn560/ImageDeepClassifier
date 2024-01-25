@@ -1,0 +1,1 @@
+<img src="[gorsel-link](https://a.storyblok.com/f/139616/5760x3240/2a49df8c09/image-classification.png/m/767x0/filters:quality(100):format(webp))https://a.storyblok.com/f/139616/5760x3240/2a49df8c09/image-classification.png" width="auto">
